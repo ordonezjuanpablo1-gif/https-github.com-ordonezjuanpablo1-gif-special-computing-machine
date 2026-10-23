@@ -1,1 +1,1 @@
-# https-github.com-ordonezjuanpablo1-gif-special-computing-machine
+# special-computing-machine
